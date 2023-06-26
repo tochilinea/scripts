@@ -1,2 +1,6 @@
 # scripts
-needed scripts in work
+   _
+ ('v')
+//-=-\\
+(\_=_/)
+ ^^ ^^
